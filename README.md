@@ -1,2 +1,37 @@
 # Nilesh_Hackthon_prep
-This repository created for practicing &amp; building skill for my self which will be utilized in up comming progrm/Hackthon/Other
+This repository created for practicing & building skill for my self which will be utilized in upcoming 🏁 program/Hack-thon/Other.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    
+
+
+
+
+
+
+
+
